@@ -68,7 +68,7 @@
 ## 📫 Let's Connect
 
 💼 Open to freelance work, collaborations, and learning together!  
-📧 **utkarsh@example.com**  
+📧 **utkarsh9pardeshi@gmail.com**  
 🔗 [LinkedIn](#) • [Portfolio](#) • [Instagram](#)
 
 ---
